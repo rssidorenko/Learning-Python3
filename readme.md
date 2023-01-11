@@ -9,4 +9,4 @@
 
 **`Удачного просмотра!`**  
 *[Мой телеграм-ник](t.me/fressssh)*  
-![](https://bodrumtour.ru/wp-content/uploads/2021/10/425261_original.jpg)
+![](https://sportishka.com/uploads/posts/2022-03/thumbs/1647173957_4-sportishka-com-p-zimnyaya-kappadokiya-turizm-krasivo-foto-4.jpg)
